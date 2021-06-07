@@ -1,1 +1,2 @@
-Once Upon a Time, there lived a Donkey. It was owned by a Washerman
+Once Upon a Time, there lived a Donkey. It was owned by a Washerman. It used to work hard for the man. once, the Donkey and the Washerman
+were crossing a bridge, the Donkey was carrying a sack of salt.
